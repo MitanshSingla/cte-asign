@@ -1,0 +1,64 @@
+# Group no. 1 Assignment
+
+- The Big Bang Theory ~ Ujjal
+- Silicon Valley ~ Ujjal
+- Squash ~ Ujjal
+- F.R.I.E.N.D.S ~ Ujjal
+- Stranger Things ~ Ujjal
+- Westworld ~ Ujjal
+- Game of Thrones ~ Ujjal
+- Deathnote ~ Ujjal
+- Erased ~ Ujjal
+- Breaking Bad ~ Ujjal
+- Rick and Morty ~ Ujjal
+- Sherlock ~ Ujjal
+- Steins;Gate ~ Ujjal
+- Narutu ~ Ujjal
+- Agents of S.H.I.E.L.D ~ Ujjal
+- Iron Fist ~ Ujjal
+- How I Met Your Mother ~ Ujjal
+- Chess ~ Ujjal
+- Football ~ Ujjal
+- The Originals ~ Ujjal
+- True Detective ~ Ujjal
+- CRICKET ~ YATIK
+- FOOTBALL ~ YATIK
+- TABLETENNIS ~ YATIK
+- VOLLEYBALL ~ YATIK
+- BASKETBALL ~ YATIK
+- LUDO ~ YATIK
+- CARDS ~ YATIK
+- UNO ~ YATIK
+- FIFA 18 ~ YATIK
+- CRYSIS ~ YATIK
+- MAX PAYNE ~ YATIK
+- IGI ~ YATIK
+- FLAMES ~ YATIK
+- QUANTICO ~ YATIK
+- SACRED GAMES ~ YATIK
+- 13 REASONS WHY ~ YATIK
+- CHAINSMOKERS ~ YATIK
+- COLDPLAY ~ YATIK
+- ONE PIECE ~ YATIK
+- DRAGON BALL Z ~ YATIK
+- REUNION ~ YATIK
+- BADMINTON - MITANSH
+- TMKOC - MITANSH 
+- CRICKET - MITANSH
+- MSD - MITANSH
+- FOOTBALL - MITANSH
+- MESSI - MITANSH
+- MKBHD - MITANSH
+- HOCKEY - MITANSH
+- DEATHNOTE - MITANSH
+- WEBD - MITANSH
+- WAVES - MITANSH
+- HARRY POTTER - MITANSH
+- BAJIRAO MASTANI - MITANSH
+- PADMAAVAT - MITANSH
+- SANJU - MITANSH
+- DIWALI - MITANSH
+- DAHI HANDI - MITANSH
+- ELON MUSK - MITANSH
+- OLE OLA - MITANSH
+- AAJ SE TERI - MITANSH 
